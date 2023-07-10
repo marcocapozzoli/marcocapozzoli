@@ -4,7 +4,7 @@
  
 ## I'm Marco! Let me present a little about myself 😄
  
-Passionate about technology, who likes to spend time programming and solving problems.
+I am passionate about situations that challenge me and encourage me to seek and transmit knowledge. I am an analytical and very creative person. I like to work on problem analysis, always seeking to develop the most viable solutions.
  
  
 ## Contact me 
