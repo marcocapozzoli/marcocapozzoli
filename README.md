@@ -4,7 +4,7 @@
  
 ## I'm Marco! Let me present a little about myself 😄
  
-I am passionate about situations that challenge me and encourage me to seek and transmit knowledge. I am an analytical and very creative person. I like to work on problem analysis, always seeking to develop the most viable solutions.
+I'm a highly analytical, self-driven, and innovative professional with a strong passion for tackling challenges and acquiring new knowledge.
  
  
 ## Contact me 
